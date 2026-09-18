@@ -3,17 +3,18 @@
 </div>
 
 <div align="center">
-<img src="https://file.garden/apnVuA0ltw0kl0kC/Verity" alt="ME" width="200" height="200">
+<img src="https://file.garden/apnVuA0ltw0kl0kC/Untitled206_20260918145622.png" alt="THD1" width="300">
 
   ###### _Robert_ / Richard ‎ ‎ ‎ ‎ OR‎ ‎ ‎ ‎  _Rob_ / Rick
   ###### He / Him ‎ ‎ ‎ ‎  DarkFiction‎ ‎ ‎ ‎  INTJ-T
-<img src="https://file.garden/apnVuA0ltw0kl0kC/Gay" alt="Gay" width="35">
+  ###### That One Handsome Devil
+<img src="https://file.garden/apnVuA0ltw0kl0kC/Untitled207_20260918145644.png" alt="Gay" width="35">
 <img
-src="https://file.garden/apnVuA0ltw0kl0kC/Bear" alt="Bear" width="35">
+src="https://file.garden/apnVuA0ltw0kl0kC/Untitled207_20260918145648.png" alt="Bear" width="36">
 </div>
 
 <div align="center">
-<img src="https://file.garden/apnVuA0ltw0kl0kC/Verimob" alt="VeriMob" width="300">
+<img src="https://file.garden/apnVuA0ltw0kl0kC/THD2" alt="THD2" width="300">
 </div>
 
 <div align="center">
