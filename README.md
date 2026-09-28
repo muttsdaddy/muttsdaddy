@@ -1,3 +1,5 @@
+<div align="center">
+  
   ###### _Robert_ / Richard ‎ ‎ ‎ ‎ OR‎ ‎ ‎ ‎  _Rob_ / Rick
   ###### He / Him ‎ ‎ ‎ ‎  DarkFiction‎ ‎ ‎ ‎  INTJ-T
   ###### That One Handsome Devil
@@ -5,6 +7,8 @@
 <img
 src="https://file.garden/apnVuA0ltw0kl0kC/Untitled207_20260918145648.png" alt="Bear" width="36">
 </div>
+
+<div align="center">
   
 ###### My Forever, <a href="https://github.com/futamono"> @futamono
 </div>
